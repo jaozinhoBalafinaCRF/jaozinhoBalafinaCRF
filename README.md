@@ -1,5 +1,5 @@
 ## é o flamengo não tem jeitokkkkkk
-
+<img src="https://claudia.abril.com.br/wp-content/uploads/2020/01/rayssa-leal-1.gif" alt="Rayssa Leal: a fadinha do skate"/>
 <!--
 **jaozinhoBalafinaCRF/jaozinhoBalafinaCRF** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
